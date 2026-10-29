@@ -1,4 +1,4 @@
-## 👏 Hi, I'm *your name here*
+## 👏 Hi, I'm Ritmun Gompel
 ##  About Me
 I'm 18 years old, and I am from Houston, Texas. I'm a first-year student at the University of Texas at San Antonio. I major in Information Technology and have a high interest in all things technology-related. I also have 2 years of recorded sales work that I completed within my Family Business and have contributed much of my time to church aid and volunteering.
 ## ⚒️ Skills
